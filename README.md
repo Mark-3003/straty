@@ -1,0 +1,2 @@
+# straty
+heheheahhashdshehhwaaaaaaaaaaaaaaaaaaaaaa
